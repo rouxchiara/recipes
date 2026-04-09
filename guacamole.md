@@ -5,7 +5,7 @@
 * salt
 
 ## Instructions
-*expensive
+smash avo and add lemon
 
 ## Time
-
+about 5 minutes
